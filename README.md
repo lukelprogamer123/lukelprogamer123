@@ -1,0 +1,4 @@
+- 👋 Hi, I’m  lucas sahid ogas sosa
+- 👀 I’m interested in  la electronica y  html
+- 🌱 I’m currently learning  php 
+- 📫  estudio la tecnicatura de tecnico en informatica profecional y persona
